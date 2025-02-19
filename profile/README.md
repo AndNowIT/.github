@@ -5,4 +5,4 @@
 
 ---
 
-> © 2024 ANIT Organization. Все права защищены.
+> © 2025 ANIT Organization. Все права защищены.
